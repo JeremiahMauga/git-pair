@@ -22,7 +22,8 @@ so he opens his throat to sing.
 I am not a poet.
 And I know it!
 "Drops mic"
-
+*Hype Beast Virnston enters*
+"OOH snap git em son!"
 ### Verse 3
 
 The caged bird sings
