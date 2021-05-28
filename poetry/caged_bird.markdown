@@ -19,6 +19,9 @@ his bars of rage
 his wings are clipped and
 his feet are tied
 so he opens his throat to sing.
+I am not a poet.
+And I know it!
+"Drops mic"
 
 ### Verse 3
 
